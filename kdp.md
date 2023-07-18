@@ -16,7 +16,6 @@ It is my hope that "The Art of Adaptability" will serve as a valuable resource a
 
 So let us embark on this transformative journey together, as we discover the art of adaptability and unlock new possibilities for growth and success.
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
 
 
