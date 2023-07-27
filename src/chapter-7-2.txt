@@ -1,0 +1,1 @@
+for the book "the art of adaptability how to innovate and thrive in a constantly changing world", write a chapter: "techniques for building agile teams".  Use Markdown format. Use English.
