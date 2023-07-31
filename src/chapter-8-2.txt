@@ -1,1 +1,0 @@
-for the book "the art of adaptability how to innovate and thrive in a constantly changing world", write a chapter: "techniques for balancing stability and flexibility".  Use Markdown format. Use English.
