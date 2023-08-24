@@ -1,5 +1,3 @@
-Building Skills and Expertise
-======================================================================================
 
 Adaptability is not just a personal skill, but it's also essential for professional growth. In this chapter, we'll explore how individuals can apply adaptability to their professional growth by building skills and expertise.
 

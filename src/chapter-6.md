@@ -1,5 +1,3 @@
-Chapter 5: Navigating Disruption and Innovation
-===============================================
 
 Disruption and innovation are common in today's world, and they can pose significant challenges to adaptability. However, by developing the skills and mindset needed to navigate disruption and innovation, individuals and organizations can become more resilient and better equipped to succeed in a constantly changing world.
 

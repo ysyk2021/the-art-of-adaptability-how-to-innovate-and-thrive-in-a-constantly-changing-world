@@ -1,4 +1,3 @@
-# Overcoming Obstacles to Being Adaptable
 
 In order to thrive in a constantly changing world, it is essential to cultivate adaptability. However, there are several obstacles that can hinder our ability to embrace change and be adaptable. This chapter explores some common obstacles and provides strategies for overcoming them.
 

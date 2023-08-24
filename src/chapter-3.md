@@ -1,5 +1,3 @@
-Chapter 2: Developing a Growth Mindset for Adaptability
-=======================================================
 
 Developing a growth mindset is essential for adapting to a constantly changing world. In this chapter, we'll explore the importance of a growth mindset in adaptability, techniques for developing a growth mindset, and overcoming obstacles to being adaptable.
 

@@ -1,5 +1,3 @@
-Techniques for Developing a Growth Mindset
-===================================================================================================
 
 Developing a growth mindset is essential for adapting to a constantly changing world. In this chapter, we'll explore techniques for developing a growth mindset for adaptability, including self-reflection, seeking feedback, cultivating curiosity, embracing failure, and celebrating successes.
 

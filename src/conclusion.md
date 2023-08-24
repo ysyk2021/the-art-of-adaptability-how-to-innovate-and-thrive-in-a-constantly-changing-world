@@ -1,4 +1,4 @@
-# Conclusion
+
 
 The ongoing journey of the art of adaptability
 ----------------------------------------------

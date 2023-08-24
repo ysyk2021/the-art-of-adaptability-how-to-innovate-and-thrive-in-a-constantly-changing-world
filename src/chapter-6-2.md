@@ -1,5 +1,3 @@
-Techniques for Navigating Disruption and Innovation
-============================================================
 
 In this chapter, we will explore various techniques and strategies that can help individuals and organizations navigate through times of disruption and embrace innovation. With the ever-changing nature of the world, it is essential to develop adaptability and resilience to thrive in the face of uncertainty. We will discuss practical approaches and mindset shifts that foster an environment conducive to embracing disruption and driving innovation.
 

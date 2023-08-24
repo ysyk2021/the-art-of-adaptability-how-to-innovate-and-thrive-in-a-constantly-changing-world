@@ -1,5 +1,3 @@
-Chapter 3: Building Self-Awareness
-==================================
 
 Building self-awareness is essential for adapting to a constantly changing world. In this chapter, we'll explore techniques for building self-awareness in relation to adaptability, identifying strengths and weaknesses in adapting to change, and building flexibility and creativity.
 

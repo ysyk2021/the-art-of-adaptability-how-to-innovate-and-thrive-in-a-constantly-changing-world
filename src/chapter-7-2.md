@@ -1,5 +1,3 @@
-Techniques for Building Agile Teams
-============================================
 
 In this chapter, we will explore techniques and strategies for building agile teams that can thrive in a constantly changing world. These techniques will help you create a collaborative and adaptive environment where teams can deliver value effectively and embrace change with agility.
 

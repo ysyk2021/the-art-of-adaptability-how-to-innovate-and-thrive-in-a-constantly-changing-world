@@ -1,5 +1,3 @@
-Chapter 6: Building Agile Teams
-===============================
 
 Building agile teams is crucial in today's constantly changing world. Agile teams allow organizations to be more responsive and adaptive to changes in their industries and markets. In this chapter, we will discuss the role of agile teams in adaptability, techniques for building agile teams, and building collaboration and communication skills.
 

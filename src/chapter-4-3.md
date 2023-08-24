@@ -1,5 +1,3 @@
-Building Flexibility and Creativity
-=======================================================================
 
 Building self-awareness is essential for adapting to a constantly changing world. In this chapter, we'll explore strategies for building flexibility and creativity, which are key skills for adapting effectively to new challenges and opportunities.
 
